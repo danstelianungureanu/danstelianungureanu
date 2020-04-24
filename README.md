@@ -1,2 +1,2 @@
 # danstelianungureanu
-http://ferestreiasi.host20.uk/MathsWebsite(HTML&CSS)
+http://www.danungureanu.host20.uk
